@@ -7,3 +7,7 @@ pliki
 
 https://youtu.be/hIc_9Wbn704?si=j-uwux-RsucgZDNm 
 chat
+
+
+https://youtu.be/AHFBPxWebFQ?si=Dwu1Xf1-PkHtsutH
+dazy banych
