@@ -3,3 +3,7 @@ prosty serwer
 
 https://youtu.be/dqgq72gOe20?si=0nDhpSxsCeqkhKxn
 pliki
+
+
+https://youtu.be/hIc_9Wbn704?si=j-uwux-RsucgZDNm 
+chat
